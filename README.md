@@ -1,0 +1,1 @@
+# magzine-for-model
